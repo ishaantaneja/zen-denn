@@ -1,4 +1,4 @@
-zen-denn
+zen-denn - gotta ed  --  it
 Unleash Your Inner Calm with Zen Denn
 Welcome to Zen Denn, the digital heartbeat of a legendary offline yoga studio, now tearing through the online world to bring mindfulness and stress relief to students and souls everywhere. Born from a family’s passion for yoga and goodwill, Zen Denn is a web app that delivers quick yoga flows, mood tracking, and a community vibe—built to help you crush exam stress or life’s chaos while feeling like a goddamn warrior. We’re here to make you zen, not broke, with a freemium model that scales fast and fuels good deeds.
 Why Zen Denn?
